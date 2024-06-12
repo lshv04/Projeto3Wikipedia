@@ -1,6 +1,7 @@
 
-![Uploading Blue Futuristic Technology Presentation (11).png…]()
 
+
+![fotocanelo1](https://github.com/lshv04/Projeto3Wikipedia/assets/169161949/144601b4-56dd-4ec2-b79d-236be0124753)
 
 # Projeto DIO Wikipedia
 
