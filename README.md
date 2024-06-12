@@ -1,6 +1,7 @@
 
 
-![Uploading Blue Futuristic Technology Presentation (10).png…]()
+
+![Uploading Blue Futuristic Technology Presentation (11).png…]()
 
 
 # Projeto DIO Wikipedia
